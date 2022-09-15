@@ -1,5 +1,4 @@
-**Link Slot Gacor 2022**
-
+## Link Slot Gacor 2022
   
 
 [![](https://cdn.alsgp0.fds.api.mi-img.com/middle.community.micommunitymy.bkt/985cea42d84d83f96d3386a0985003b6)](https://magic.ly/adlvadmin)
